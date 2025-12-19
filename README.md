@@ -1,1 +1,1 @@
-# sc2 on you Google 2.4 series
+# sc2 on you web online TV only
